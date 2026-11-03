@@ -1,0 +1,1 @@
+# -Trilha-de-Desenvolvimento---Programa-de-Estagio-2026-VCoE-Tarde
